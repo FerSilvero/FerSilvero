@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FerSilvero
+- 📚 I’m currently learning software development.
+- 🚀 Forging my skills and passions in this field.
+- 📌 I’m committed and ambitiuos.
+- 📫 How to reach me, my email ferpolasebas@gmail.com
